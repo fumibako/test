@@ -38,9 +38,9 @@ https://fumibako.github.io/test/
 ・赤いガラスの宮殿 様 http://www.geocities.jp/redglass_palace/  
 ・フリー素材屋Hoshino 写真提供者 usagi_s 様 http://www.s-hoshino.com/  
 ・明治村画像庫2 様 http://d.hatena.ne.jp/meiji_photo/  
-・otomegtx 様 http://otomegtx.yorozu.us/pic.html
-・[PHOTO STOCKER]　様 http://photo.v-colors.com/  
-・YUKI 様 http://photo.v-colors.com/329.html
+・otomegtx 様 http://otomegtx.yorozu.us/pic.html  
+・[PHOTO STOCKER]　様 http://photo.v-colors.com/  
+・YUKI 様 http://photo.v-colors.com/329.html  
 ・フリー素材*ヒバナ 様 http://hibana.rgr.jp/  
 ・deviantart-gimei 様 http://gimei.deviantart.com/art/Japanese-style-image-set-102424728  
 ・pixiv : mit81 様 http://www.pixiv.net/member_illust.php?mode=medium&illust_id=31433317  
